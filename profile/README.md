@@ -20,5 +20,6 @@ All content published by Baumoria is protected under applicable copyright laws. 
 ---
 **Follow us on social media for the latest updates!**
 
+✉️ E-Mail: [contact@baumoria.com](mailto:contact@baumoria.com)
 📢 Twitter: [@BaumoriaGames](https://baumoria.com/links/twitter)  
 🎮 Discord: [Join Our Community](https://baumoria.com/links/discord)
